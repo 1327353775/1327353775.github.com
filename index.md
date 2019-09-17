@@ -5,7 +5,7 @@
 - Email：1327353775@qq.com
 - 微信号：18931927556
 - QQ：1327353775
-<img src="1A2A2092.JPG"  height="300" width="495">
+<img src="1A2A2092.JPG"  height="300">
 ---
 
 # 个人信息
